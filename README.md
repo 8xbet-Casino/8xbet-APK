@@ -1,5 +1,5 @@
-Q: How do I choose the online sportsbook that’s best for me?
 
+Q: How do I choose the online sportsbook that’s best for me?
 Ans: Choosing the right online sportsbook can be a daunting task, but it’s important to take the time to find one that meets your specific needs.
 Here are some factors to consider when making your selection:
 
