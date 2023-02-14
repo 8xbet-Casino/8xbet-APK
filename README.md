@@ -23,7 +23,7 @@ Payment Options:
 Consider the payment options offered by the sportsbook, such as credit cards, e-wallets, and bank transfers.
 Make sure the sportsbook offers the payment methods that work best for you.
 
-8Xbet Casino is one of the best casino in Vietnam which is providing betting as a fun and exciting way to engage with sports and potentially make some extra money. popular among tourists and locals.
+[8Xbet Casino](https://8xbet.place) is one of the best casino in Vietnam which is providing betting as a fun and exciting way to engage with sports and potentially make some extra money. popular among tourists and locals.
 
 8Xbet Casino are committed to providing the best online gaming world to users. 8Xbet Casino know that trust and security are a top priority for online garners and they have built their entire online platform with this in mind.
 
